@@ -1,0 +1,1 @@
+# frispiny-za-registraciyu-bez-depozita
